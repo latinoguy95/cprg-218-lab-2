@@ -46,6 +46,37 @@ Instructions:
 4. Season with salt and pepper to taste.
 5. Top each toasted baguette slice with the tomato mixture.
 
+### Loaded Salchipapas
+
+Ingredients:
+For the Salsa Rosada:
+- 1/4 cup mayonnaise
+- 3 tablespoons ketchup
+- 1 1/2 teaspoons freshly squeezed lemon juice from 1 lemon
+
+For the Salchipapas:
+- 4 large skin-on russet potatoes (about 2 pounds), cut into 1/4-inch sticks on a mandoline
+- 2 quarts peanut or canola oil
+- 8 oz thick cut bacon, cut into 1/2-inch dice
+- 6 hot dogs
+- 6 oz white cheese, grated
+
+Insctructions:
+To make the Salsa Rosada:
+1. Whisk together mayonnaise, ketchup, and lemon juice in a small bowl.
+2. Set aside or transfer to an airtight container and store in refrigerator until ready for use.
+
+To make the Salchipapas: 
+1. Place potatoes in a large bowl and cover completely with cold water. Let soak for at least 1 hour, or, alternatively, drain water and rinse again, changing water until it runs completely clear. Drain potatoes and dry thoroughly with paper towels.
+2. Heat oil in a large Dutch oven or wok to 350°F. Working in batches, add potatoes and cook, stirring and turning frequently until pale blonde, about 5 minutes. Transfer potatoes to a paper towel-lined baking sheet.
+3. Add bacon into a 10-inch skillet over medium-high heat and cook until fat render and bacon crisps. Transfer bacon to a paper towel-lined plate.
+4. Light one chimney full of charcoal. When all charcoal is lit and covered with gray ash, pour out and spread the coals evenly over entire surface of coal grate. Set cooking grate in place, cover grill and allow to preheat for 5 minutes. Clean and oil the grilling grate. Place hot dogs on grill and cook, turning occasionally, until heated through and well browned, about 4 minutes. Transfer hot dogs to a cutting board and cut into 1/2-inch slices on a bias.
+5. Heat oil to 425°F. Add potatoes and cook, stirring and turning frequently, until deep golden brown, about 3 minutes. Transfer to paper towel-lined baking sheet and season with salt to taste.
+6. Place a layer of french fries on a platter or shallow bowl and top with hot dog slices and bacon. Add another layer of fries and top with more hot dogs and bacon. Top with grated cheese and salsa rosada. Repeat assembly with remaining ingredients. Serve immediately.
+
+Recipe available at https://meatwave.com/recipes/fully-loaded-salchipapas-french-fries-and-hot-dogs-recipe
+
+
 ## Entrees
 ### Spaghetti and Meatballs
 
