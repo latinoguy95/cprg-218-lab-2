@@ -113,3 +113,23 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Postre de Milo
+Ingredients: 
+- 1 can 14oz condensed milk
+- 1 can 7.6oz cream of milk or 1 cup of heavy cream
+- 1 cup milk
+- 2 tbsp cornstarch
+- Milo (as much as you like)
+- Ducales cookies Galletas Ducales, found in the Hispanic section at your grocery store
+
+Instructions:
+1. In a medium saucepan over medium heat mix condensed milk and cream of milk.
+2. In a small bowl or cup, add milk and mix in with cornstarch until well combined. Add it to the saucepan, stirring constantly to prevent lumps in the mix.
+3. Continue cooking over medium heat. From this moment, do not stop stirring the mix until it’s done. Stir constantly with a wire whisk to prevent milk from burning at the bottom of the pan.
+4. Bring to a boil for about 1 minute until the mixture has thickened. Remove from the heat.
+5. In an 8×8 square pan or 8-inch round, add a layer of milk pudding covering the bottom of the pan, and sprinkle Milo powder with the help of a spoon on the entire surface. The amount of Milo in each layer depends on your personal preference. Add a layer of the cookies, arranging evenly. Follow with pudding and repeat this process until you have used all the milk mixture. You will have leftover cookies and Milo powder for another use.
+6. Cover with plastic wrap and cool in the refrigerator for at least 6-8 hours before serving. Must be served cold.
+
+Source: Seidy
+Available at https://seidysbakery.com/postre-de-milo-colombian-dessert/
